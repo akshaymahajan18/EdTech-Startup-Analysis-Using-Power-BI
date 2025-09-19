@@ -37,3 +37,20 @@ month only 60 hours of content ) and for flexible schedules make the timing as 2
 hours.
 9. In the context of recorded lectures, we need to investigate whether the variety of skills
 offered within each category and subcategory has a measurable impact on viewership
+
+<img width="1323" height="733" alt="Screenshot 2025-09-19 104159" src="https://github.com/user-attachments/assets/5f6f29d2-e6ab-4777-998c-15ec2e549c73" />
+<img width="1279" height="602" alt="Screenshot 2025-09-19 104223" src="https://github.com/user-attachments/assets/479f1a9f-2d18-4dda-ab88-a6b00195b45b" />
+
+
+
+
+
+
+
+
+
+
+
+
+
+
